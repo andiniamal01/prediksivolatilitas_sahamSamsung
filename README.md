@@ -1,0 +1,1 @@
+# prediksivolatilitas_sahamSamsung
